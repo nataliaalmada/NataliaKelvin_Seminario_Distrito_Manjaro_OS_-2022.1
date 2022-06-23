@@ -1,0 +1,1 @@
+# NataliaKelvin_Seminario_Distrito_Manjaro_OS_-2022.1
